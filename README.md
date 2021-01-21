@@ -1,0 +1,1 @@
+# C-textDosyas-naYazmaVeokuma
